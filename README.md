@@ -1,4 +1,4 @@
-# Resume
+![1DB4A1C7-7E90-44DB-8B7E-0477D6872BD4](https://user-images.githubusercontent.com/125839038/224589824-4f384a82-c868-41da-9197-27995c7d1cd2.jpg)
 
 ## About Me
 
